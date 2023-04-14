@@ -1,0 +1,2 @@
+- https://github.com/rron-grezda
+- https://www.linkedin.com/in/rrongrezda/
